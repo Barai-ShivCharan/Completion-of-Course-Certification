@@ -1,1 +1,1 @@
-In this Repo, Those course which is enrolled throw which i have earned certificate.
+In this Repo, I have earned Certificate after giving a Test Exam.
